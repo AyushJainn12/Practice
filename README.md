@@ -1,2 +1,3 @@
 # Practice
-just the first oe
+just the first one
+will learn everythin on this day
